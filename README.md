@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...everything except basics
 - 💬 Ask me about ... medicine
 - 📫 How to reach me: ...orwajosh95@gmail.com
-- ⚡ Fun fact: ... tired with the medicine firld tryna get and have some fun
+- ⚡ Fun fact: ... tired with the medicine field tryna get and have some fun
 
